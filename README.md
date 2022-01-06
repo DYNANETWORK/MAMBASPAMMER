@@ -15,7 +15,7 @@ The Fastest multi spambot of Telegram🤞🤞
 
 ### 🖤 ᴄʀᴇᴀᴛᴏʀ 🖤
 
-[![telegram badge](https://img.shields.io/badge/RevilHunter-30302f?style=for-the-badge&logo=telegram)](https://t.me/MAMBA_X_SUPPORT)
+[![telegram badge](https://img.shields.io/badge/MAMBA_STAR-30302f?style=for-the-badge&logo=telegram)](https://t.me/MAMBA_X_SUPPORT)
 
 ## ⚡MAMBA SPAMMER⚡
 ## 𝓐 𝕾мοοτн 𝓐и∂ 𝕱αѕτєѕτ 𝔖𝔭𝔞𝔪 ϐοτ 𝕭αѕє∂ 𝕺и 𝕿𝖊ℓєτнοи 𝕷ιϐяαяγ.
