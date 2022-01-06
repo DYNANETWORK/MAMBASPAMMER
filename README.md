@@ -1,4 +1,4 @@
-# Revil Spam Bot
+# MAMBA SPAMMER
 
 
 <p align="center">
